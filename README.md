@@ -1,4 +1,4 @@
 Hi, I’m Chloe Lim!
 
-I’m currently a Year 2 student at Ngee Ann polytechnic, studying Information Technology.
+I’m currently a Year 3 student at Ngee Ann polytechnic, studying Information Technology.
 
